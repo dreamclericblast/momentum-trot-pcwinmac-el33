@@ -1,4 +1,4 @@
-# 
+# Elite momentum trading bot presets for Mac OS | Professional momentum trading bot presets for PC Windows. Featuring centralized exchange api and decentralized exchange api — optimized for maximum performance.
 
 
 
